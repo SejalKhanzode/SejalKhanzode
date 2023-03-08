@@ -7,7 +7,7 @@
 
 - ⚡ All of my projects are available at [https://github.com/SejalKhanzode/](https://github.com/SejalKhanzode/)
 
-- 📫 How to reach me **khanzodesejal@gmail.com**
+- 📫 Reach out to me **khanzodesejal@gmail.com**
 
 
 <p align="left">
